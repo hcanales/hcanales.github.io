@@ -1,4 +1,5 @@
-# Quae ipse redis
+# Something real will eventually be here
+#### For now here's some lipsum text
 
 ## Quod ecce sui ordinibus Talia flumina
 
