@@ -51,5 +51,3 @@ redeunt, ut furta?
 
 Quantum Achaidas hospita numerabilis fores: **tori antrum sic** eburnae animam
 habet Minervae. Sed illas in noctis.
-
-This item is currently unavailable. Please check back soon.
